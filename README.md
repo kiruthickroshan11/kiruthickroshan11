@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kiruthickroshan11
 - 👀 I’m interested in Testing
-- 🌱 I’m currently learning Software Testing
+- 🌱 I’m currently Looking For Job
 - 💞️ I’m looking to collaborate on IT sector
 - 📫 How to reach me kiruthickroshankiruthick@gmail.com
 
